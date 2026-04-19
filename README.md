@@ -1,5 +1,3 @@
-(https://github.com/user-attachments/assets/531551a6-e399-43a8-809f-7111a6024a10)
-
 𐔌  ,,  ⋮ Ships INT  .ᐟ  ₊  ꒱
 
 ᶻ 𝘇 𐰁 Pirates of the Caribbean :: Sparrangelica, Sparbossa, Speckett, Norribeth, Jack x Esmeralda, Davy Jones x Calypso, Beckett x Mercer, Giselle x Scarlett, Pintel x Ragetti (+more)
@@ -26,5 +24,3 @@ Ships DNI ⋮ IWC
 ᶻ 𝘇 𐰁 Rarepairs (INT) :: SeductiveSmoke (Verosika x Valentino), StaticMothPop (VoxVal x Verosika), StaticPop (Vox x Verosika), Captain Edward Teague x Lawrence Norrington (+more)
 
 ᶻ 𝘇 𐰁 Crackships (INT) :: MediaMothBelle, MothBelle
-
-(https://github.com/user-attachments/assets/768d4f36-f09f-4f9b-9794-7c97654368fa)
